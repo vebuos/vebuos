@@ -12,6 +12,12 @@
 i am cool and awesome and c+h is always okay!!!!!
 w2i ok yes ✅ 
 
+dc: vebuos
+
+
+pinterest: vebuos
+
+im just vebuos everywhere (or vvebuos)
 
 
 <img src="https://media1.tenor.com/m/C3h3iI2MevAAAAAC/appare-march-t3.gif" alt="a man in a red kimono stands in front of a full moon"/>
