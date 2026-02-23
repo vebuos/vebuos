@@ -1,2 +1,2 @@
 ## i am leo hi 
-<img src="https://media.tenor.com/mHaEwhWnEJgAAAAi/akito-shinonome-shinonome-akito.gif" alt="a 3d model of a boy with orange hair and a t-shirt that says rep"/><img width="498" height="498" alt="image" src="https://github.com/user-attachments/assets/ccfb11b1-7359-4812-bf7f-e49ba45c84fb" />
+<img src="https://media1.tenor.com/m/ylDggj1yC-4AAAAC/akito-chibi-akito-shinonome.gif" alt="a cartoon character with a lightning bolt on his head is standing in front of a television"/>![Uploading image.png…]()
