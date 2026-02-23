@@ -18,7 +18,8 @@ dc: vebuos
  vebuos almost everywhere (or vvebuos)
 
 
-<img src="https://static.wikia.nocookie.net/projectsekai/images/4/41/Stamp20034.png/revision/latest/scale-to-width-down/175?cb=20241023151412" alt="Don&#39;t let your guard down! (KR Exclusive)"/>
+<img src="https://static.wikia.nocookie.net/projectsekai/images/4/41/Stamp20034.png/revision/latest/scale-to-width-down/175?cb=20241023151412" alt="Don&#39;t let your guard down! (KR Exclusive)"/><img src="https://static.wikia.nocookie.net/projectsekai/images/d/df/Stamp111131.png/revision/latest/scale-to-width-down/185?cb=20240930201749" alt="Who knew he had that kind of range?"/>
+
 
 
 
