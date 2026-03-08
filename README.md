@@ -14,7 +14,6 @@ w2i ok yes ✅
 
 dc: vebuos
 
-^ alt that i rarely use: vvebuos
 
 
  vebuos almost everywhere (or vvebuos)
